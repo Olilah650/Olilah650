@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Olilah650
-- 👀 I’m interested in all things critical thinking, tech, and mathematical
+- 👀 I’m interested in all things critical thinking, tech, and mathematics
 - 🌱 I’m currently learning Virtual Assistance, Data Analysis, and Project Management
 - 💞️ I’m looking to collaborate on Tech and online freelancing opportunities
 - 📫 How to reach me euniceolilah650@gmail.com
